@@ -24,3 +24,6 @@ Todos os direitos reservados. Esta imagem e vídeo estão protegidos por lei e n
 ✍️ Uzante ĉi tiun bildon aŭ videon, vi konsentas pri la kondiĉoj fiksitaj en ĉi tiu licenco. Inkluzive de bildoj de fotiloj instalitaj en ajnaj rezervitaj lokoj. Silento estas esenca. Aŭskultu la silenton. Silento estas la voĉo de Dio, Patro, Ĉiopova, Kreinto de la ĉielo kaj la tero, kaj de Lia sola filo, NIA SINJORO. Amen.
 
 ✍️ Cum hac imagine vel video uteris, condicionibus huius licentiae consentis. Inclusis imaginibus e cameris in locis reservatis collocatis. Silentium est primordiale. Audi silentium. Silentium est vox Dei, Patris Omnipotentis, Creatoris caeli et terrae, et unici Filii eius, DOMINI NOSTRI. Amen.
+
+✍️ 使用此图像或视频即表示您同意本许可证规定的条款，包括安装在任何保留地点的摄像机图像。沉默至关重要。聆听沉默。沉默是上帝的声音，万能的天父，天地的创造者，以及他的独生子，我们的主。阿门。
+
