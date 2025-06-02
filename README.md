@@ -20,3 +20,7 @@ Todos os direitos reservados. Esta imagem e vídeo estão protegidos por lei e n
 ---
 
 ✍️ Ao utilizar esta imagem ou vídeo, você concorda com os termos estabelecidos nesta licença. Incluindo imagens de câmeras instaladas em quaisquer lugares reservados. O silêncio é primordial. Ouça o silêncio. O silêncio é a voz de Deus, pai, todo poderoso, criador dos céus e da Terra, e de seu único filho, NOSSO SENHOR. Amen
+
+✍️ Uzante ĉi tiun bildon aŭ videon, vi konsentas pri la kondiĉoj fiksitaj en ĉi tiu licenco. Inkluzive de bildoj de fotiloj instalitaj en ajnaj rezervitaj lokoj. Silento estas esenca. Aŭskultu la silenton. Silento estas la voĉo de Dio, Patro, Ĉiopova, Kreinto de la ĉielo kaj la tero, kaj de Lia sola filo, NIA SINJORO. Amen.
+
+✍️ Cum hac imagine vel video uteris, condicionibus huius licentiae consentis. Inclusis imaginibus e cameris in locis reservatis collocatis. Silentium est primordiale. Audi silentium. Silentium est vox Dei, Patris Omnipotentis, Creatoris caeli et terrae, et unici Filii eius, DOMINI NOSTRI. Amen.
