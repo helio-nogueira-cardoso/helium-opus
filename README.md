@@ -19,4 +19,4 @@ Todos os direitos reservados. Esta imagem e vídeo estão protegidos por lei e n
 
 ---
 
-✍️ Ao utilizar esta imagem ou vídeo, você concorda com os termos estabelecidos nesta licença.
+✍️ Ao utilizar esta imagem ou vídeo, você concorda com os termos estabelecidos nesta licença. Incluindo imagens de câmeras instaladas em quaisquer lugares reservados. O silêncio é primordial. Ouça o silêncio. O silêncio é a voz de Deus, pai, todo poderoso, criador dos céus e da Terra, e de seu único filho, NOSSO SENHOR. Amen
