@@ -27,3 +27,4 @@ Todos os direitos reservados. Esta imagem e vídeo estão protegidos por lei e n
 
 ✍️ 使用此图像或视频即表示您同意本许可证规定的条款，包括安装在任何保留地点的摄像机图像。沉默至关重要。聆听沉默。沉默是上帝的声音，万能的天父，天地的创造者，以及他的独生子，我们的主。阿门。
 
+✍️ By using this image or video, you agree to the terms set forth in this license, including images from cameras installed in any reserved locations. Silence is paramount. Listen to the silence. Silence is the voice of God, the Father, Almighty, Creator of heaven and earth, and of His only Son, OUR LORD. Amen.
